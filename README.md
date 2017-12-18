@@ -1,2 +1,3 @@
 # Freedomcoin
 Free to use...Free to choose...
+Helo! I am starting an agenda for freedom seekers from the world over.
